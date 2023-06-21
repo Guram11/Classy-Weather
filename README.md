@@ -1,2 +1,3 @@
 
-![Screenshot (6)](https://github.com/Guram11/Classy-Weather/assets/121447764/3445d6e2-d8f8-4536-aaa0-9ddf977d5066)
+
+![Screenshot (6)](https://github.com/Guram11/Classy-Weather/assets/121447764/d38814da-9ce1-483e-bcfd-8f6863a67a26)
